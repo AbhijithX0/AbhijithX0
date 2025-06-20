@@ -2,7 +2,7 @@
 - 👀 I’m interested in coding
 - 🌱 I’m currently learning coding
 - 💞️ I’m looking to collaborate 
-- 📫 Feel free to message me on instagram [@abhijith.notfound]
+- 📫 Feel free to message me on instagram [@abhiiiiii.jith]
 
 <!---
 AbhijithX0/AbhijithX0 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
